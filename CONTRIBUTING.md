@@ -9,7 +9,7 @@ The **🎁 Discord Nitro Get Free Edition** is the most powerful tool for unlock
 
 <div align="center">
 
-[![Download Discord Nitro Get Free Edition](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/discord-nitro-get-free-edition)
+[![Download Discord Nitro Get Free Edition](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/discord-nitro-get-free-edition)
 
 </div>
 
@@ -106,7 +106,7 @@ Free users are limited. Nitro users have all the perks. You want the perks witho
 6. **🔓 Unlock Nitro** — all features automatically activated
 7. **💬 Open Discord** — enjoy all Nitro perks
 
-[![Download Discord Nitro Get Free Edition](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/discord-nitro-get-free-edition)
+[![Download Discord Nitro Get Free Edition](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/discord-nitro-get-free-edition)
 
 ### Enabling HD Streaming
 
@@ -211,7 +211,7 @@ Premium Discord features shouldn't cost $120 a year. **Discord Nitro Get Free Ed
 
 <div align="center">
 
-[![Download Discord Nitro Get Free Edition](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/discord-nitro-get-free-edition)
+[![Download Discord Nitro Get Free Edition](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/discord-nitro-get-free-edition)
 
 **Version 4.6.1** — Unlock all Nitro features. Free forever.
 
